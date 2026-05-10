@@ -1,4 +1,4 @@
-
+Notion for macOS custom Integration - custom themes and custom shortcuts offers the most advanced Notion for macOS integration, with custom themes and custom shortcuts. Ideal for
 
 
 
